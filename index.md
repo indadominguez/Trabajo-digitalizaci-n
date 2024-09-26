@@ -19,6 +19,8 @@ Y como tercer rival el FC Barcelona se enfrenta al **Deportivo Alaves** en su es
 
    ![image](https://github.com/user-attachments/assets/eff1e1ad-09b9-413d-b8ed-d37d0be8eee8)
 
+Para más contenido futbolístico no olviden [pulsar aquí](https://indadominguez.github.io/Trabajo-digitalizaci-n/index2)
+
 
 
 
