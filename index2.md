@@ -13,4 +13,4 @@ expectacular con ambas delanteras marcando muchos goles y aportando un juego vis
 Y termina el resumen de los mejores partidos de esta jornada esperemos que hayan disfrutado de este espacio informativo y les haya sido útil.
 
 ![image](https://github.com/user-attachments/assets/b3dd0a6c-c6ac-41a8-81b2-a45d9429f04f)
-
+[Pulsa aquí para volver a la página anterior]https://indadominguez.github.io/Trabajo-digitalizaci-n
